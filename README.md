@@ -31,7 +31,7 @@ Plan de aprendizaje:
 4) Establece tus prioridades
 5) Establece aquellos planes a corto, mediano, y largo plazo
 
-# beneficios del aprendizaje continuo
+# Beneficios del aprendizaje continuo
 El aprendizaje continuo es un proceso que consiste en proveer a las personas de la oportunidad de mejorar las destrezas y talentos que ya emplean en su lugar de trabajo. Por esta razón, los líderes empresariales deben posicionar esta formación como una prioridad y dar ejemplo a sus trabajadores, demostrando que ellos también renuevan constantemente sus conocimientos.
 
 ## Los gerentes deben ser más conscientes de sí mismos:
