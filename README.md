@@ -30,3 +30,15 @@ Plan de aprendizaje:
 3) Realiza una evaluación del 1 al 5 (siendo 1 el más bajo y 5 el más alto) acerca de cuanto conoces de cada tema
 4) Establece tus prioridades
 5) Establece aquellos planes a corto, mediano, y largo plazo
+
+# beneficios del aprendizaje continuo
+El aprendizaje continuo es un proceso que consiste en proveer a las personas de la oportunidad de mejorar las destrezas y talentos que ya emplean en su lugar de trabajo. Por esta razón, los líderes empresariales deben posicionar esta formación como una prioridad y dar ejemplo a sus trabajadores, demostrando que ellos también renuevan constantemente sus conocimientos.
+
+## Los gerentes deben ser más conscientes de sí mismos:
+Los gerentes deben recapitular y preguntarse si están realmente comprometidos con la formación continua de sus trabajadores. 
+
+## Las acciones hablan más que las palabras:
+Alistair afirma que para ser valiente y fomentar la cultura del aprendizaje continuo, los directivos deben comprometerse públicamente con el aprendizaje profesional de cada uno de los empleados, sin importar lo ocupados que estén. 
+
+## El fracaso está bien, siempre y cuando, al final, se convierta en aprendizaje. 
+Una vez establecida la nueva cultura del aprendizaje, los líderes deben asegurarse de que los gerentes sepan que está bien fallar, siempre y cuando tomen nota de lo aprendido a raíz de dicha situación. 
