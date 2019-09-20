@@ -1,6 +1,8 @@
 Como y porque desarrollar una mentalidad de aprendizaje continuo
 ================================================================
 
+![Aprendizaje Continuo](https://pabloaracil.es/wp-content/uploads/2018/05/aprendizaje-continuo.png)
+
 # 1) De que trata y para qué sirve el aprendizaje continuo
 Exiten dos capacidades que son las más demandadas por las empresas: la creatividad y la habilidad de aprender.
 Actualmente, la sociedad se encuentra con un mundo que cambia y evoluciona de forma constante por lo que las
@@ -32,6 +34,7 @@ Plan de aprendizaje:
 5) Establece aquellos planes a corto, mediano, y largo plazo
 
 # Beneficios del aprendizaje continuo
+![Beneficios del aprendizaje continuo](https://www.hrconnect.cl/wp-content/uploads/2017/05/Captura-de-pantalla-2017-05-08-a-las-23.43.37-768x479.png)
 El aprendizaje continuo es un proceso que consiste en proveer a las personas de la oportunidad de mejorar las destrezas y talentos que ya emplean en su lugar de trabajo. Por esta razón, los líderes empresariales deben posicionar esta formación como una prioridad y dar ejemplo a sus trabajadores, demostrando que ellos también renuevan constantemente sus conocimientos.
 
 ## 1) Los gerentes deben ser más conscientes de sí mismos:
