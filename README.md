@@ -45,3 +45,35 @@ Alistair afirma que para ser valiente y fomentar la cultura del aprendizaje cont
 
 ## 3) El fracaso está bien, siempre y cuando, al final, se convierta en aprendizaje. 
 Una vez establecida la nueva cultura del aprendizaje, los líderes deben asegurarse de que los gerentes sepan que está bien fallar, siempre y cuando tomen nota de lo aprendido a raíz de dicha situación. 
+
+
+# 6 Pasos para Tener una Mentalidad de Crecimiento
+
+# 1. Aumenta tu Autoconciencia
+
+Para cambiar es dispensablle conocernos a nosotros mismos para poder  mejorar.
+
+**Reconocer nuestras Habilidades**
+
+**Ama lo que Haces**
+
+**Reconoce a la Voz de tu Mentalidad Estática**
+# 2. Reconoce que Tienes una Opción
+
+Tienes la opción de seguir a esa voz y huir, o tienes la opción de dejar esos miedos y alcanzar lo que desees.
+
+# 3. Toma la Decisión de Crecer
+
+Cada vez que te encuentres ante una adversidad y te des cuenta de que tienes la opción de crecer, tómala, comprométete a crecer en cada momento.
+
+# 4. Acepta el Fracaso
+
+Pueda que sea la cosa más difícil que tengamos que hacer en nuestra vida ya que lastima nuestro ego y orgullo. Pero cuando logramos aceptar el fracaso, éste deja de tener poder sobre nosotros, en ese momento el fracasoo se conbierte en aprendisaje.
+
+# 5. Disfruta de los Retos
+
+Disfruta de los retos que se presentan en tu vida y úsalos como herramientas para alcanzar lo que deseas.
+
+# 6. Comprométete a una Maravillosa Vida de Aprendizaje Continuo
+
+Vive una vida de aprendizaje continuo.
